@@ -4,4 +4,4 @@ Digitizing healthcare systems is highly essential in helping identify diseases a
 
 Research Paper Link: https://drive.google.com/file/d/1vAB6YSMy1icQQifhl9BnaH33jOyyFNMl/view?usp=sharing
 
-Thesis Link: 
+Thesis Link: https://drive.google.com/file/d/1eqZGv3ap9KRHg71nJv81GlVePyMUYALW/view?usp=sharing
